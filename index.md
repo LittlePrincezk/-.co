@@ -8,7 +8,7 @@
 
 ## 3D打印和激光切割
 
-![QQ图片20170608214742.jpg](https://ooo.0o0.ooo/2017/06/08/593955a89a3fa.jpg)
+![QQ图片20170608214742.jpg](https://raw.githubusercontent.com/LittlePrincezk/ZhiMaiKaBuLiaoMeiDeHaoXueZhang/master/70f41111f405146b.jpg)
 
 ![B7A316187B09FECB1669B39FCA5F532C.png](https://ooo.0o0.ooo/2017/06/08/593957d3d79b9.png)
 
