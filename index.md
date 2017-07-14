@@ -10,7 +10,7 @@
 
 ![QQ图片20170608214742.jpg](https://raw.githubusercontent.com/LittlePrincezk/ZhiMaiKaBuLiaoMeiDeHaoXueZhang/master/70f41111f405146b.jpg)
 
-![B7A316187B09FECB1669B39FCA5F532C.png](https://github.com/LittlePrincezk/ZhiMaiKaBuLiaoMeiDeHaoXueZhang/blob/master/70f41111f405146b.jpg)
+![B7A316187B09FECB1669B39FCA5F532C.png](https://github.com/LittlePrincezk/ZhiMaiKaBuLiaoMeiDeHaoXueZhang/raw/master/70f41111f405146b.jpg)
 
 看着自己的设计在激光切割机和3D打印机下一点点成型，内心十分激动。
 
