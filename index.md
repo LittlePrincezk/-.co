@@ -71,5 +71,5 @@
  
  ![](https://raw.githubusercontent.com/LittlePrincezk/ZhiMaiKaBuLiaoMeiDeHaoXueZhang/master/pictures/qrcode_1500096956242.jpg)
  
-[documentation](https://user.qzone.qq.com/1296720187/infocenter)
+[老衲的企鹅空间](https://user.qzone.qq.com/1296720187/infocenter)
  
