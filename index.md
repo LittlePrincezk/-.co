@@ -63,7 +63,7 @@
 ![](https://raw.githubusercontent.com/LittlePrincezk/ZhiMaiKaBuLiaoMeiDeHaoXueZhang/master/pictures/QQ%E5%9B%BE%E7%89%8720170715093859.jpg)                                                                                                      
  
 ## 实惠的手机卡套餐 
-如果你的室友抢先一步，办理了宽带，没关系，手机卡的套餐也是非常实惠的。（能抢先办理宽带的话尽量办理宽带套餐）
+如果你的室友抢先一步，办理了宽带，没关系，手机卡的套餐也是非常实惠的,月租48，每个月返还20（是的返20你没看错，以我文字为准，图片是以前的），返3年。（能抢先办理宽带的话尽量办理宽带套餐）
 ![](https://raw.githubusercontent.com/LittlePrincezk/ZhiMaiKaBuLiaoMeiDeHaoXueZhang/master/pictures/QQ%E5%9B%BE%E7%89%8720170715093937.png)
 
 ## 最后附上老学长的企鹅号
