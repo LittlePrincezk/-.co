@@ -68,6 +68,6 @@
 
 ## 最后附上老学长的企鹅号
  打开QQ app扫描下面二维码添加老衲（验证信息一定要慎重hhh）
- 
+ ![](https://raw.githubusercontent.com/LittlePrincezk/ZhiMaiKaBuLiaoMeiDeHaoXueZhang/master/pictures/qrcode_1500096956242.jpg)
  
  
